@@ -1,1 +1,1 @@
-# SmartCity
+# Kindness_Ripple
